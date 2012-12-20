@@ -100,10 +100,11 @@ Die Piraten machen sich für die sofortige Umsetzung der in der Behindertenrecht
 
 Wir wollen, dass an jeder Schule pro 100 Schüler
 
-Schul-Sozialpädagogen
-Schul-Psychologen,
-Speziallehrkräfte, die nach normaler Ausbildung und längerer Schulpraxis eine intensive Ausbildung zu psychologischen Grundlagen, diagnostischer Kompetenz und einer differenzierten Methodenpalette des Förderns absolviert haben
-sowie Fachkräfte mit einer Grundausbildung als Krankenpfleger / Krankenschwester mit Zusatzausbildung für vorbeugende Gesundheitsarbeit
+* Schul-Sozialpädagogen
+* Schul-Psychologen,
+* Speziallehrkräfte, die nach normaler Ausbildung und längerer Schulpraxis eine intensive Ausbildung zu psychologischen Grundlagen, diagnostischer Kompetenz und einer differenzierten Methodenpalette des Förderns absolviert haben
+* sowie Fachkräfte mit einer Grundausbildung als Krankenpfleger / Krankenschwester mit Zusatzausbildung für vorbeugende Gesundheitsarbeit
+
 mit mindestens je einem Tag pro Woche eingesetzt werden.
 
 Lernende mit Lernproblemen sollen Anspruch auf umfangreiche Förderung durch Speziallehrkräfte bekommen.
@@ -122,9 +123,9 @@ Die Ausbildung der Lehrkräfte in Hessen bedarf in unseren Augen dringend einer 
 
 Ziele der Piratenpartei Hessen sind hier:
 
-Potentielle Lehrkräfte sollen viel früher feststellen können, ob sie persönlich für den Unterricht von Kindern und Jugendlichen geeignet sind.
-Angehende Lehrkräfte sollen noch besser pädagogisch und didaktisch auf den Unterricht vorbereitet werden
-In der Praxis stehende Lehrkräfte sollen mit geeigneten Anreizen zur regelmäßigen Weiterbildung und Tätigkeit an verschiedenen Schulen motiviert werden
-Allen Lehrkräften sollen ihre Stärken und Schwächen aufgezeigt sowie Weiterbildungs-und Entwicklungspotentiale erschlossen werden.
-Das Verfallen in unreflektierte Verhaltens- und Reaktionsmuster sowie das Entstehen von Stress-Krankheiten und Burn Out soll vermieden werden.
-Weiterbildungen, Schul- und Fachwechsel und Auszeiten sollen erleichtert und positiv unterstützt werden.
+* Potentielle Lehrkräfte sollen viel früher feststellen können, ob sie persönlich für den Unterricht von Kindern und Jugendlichen geeignet sind.
+* Angehende Lehrkräfte sollen noch besser pädagogisch und didaktisch auf den Unterricht vorbereitet werden
+* In der Praxis stehende Lehrkräfte sollen mit geeigneten Anreizen zur regelmäßigen Weiterbildung und Tätigkeit an verschiedenen Schulen motiviert werden
+* Allen Lehrkräften sollen ihre Stärken und Schwächen aufgezeigt sowie Weiterbildungs-und Entwicklungspotentiale erschlossen werden.
+* Das Verfallen in unreflektierte Verhaltens- und Reaktionsmuster sowie das Entstehen von Stress-Krankheiten und Burn Out soll vermieden werden.
+* Weiterbildungen, Schul- und Fachwechsel und Auszeiten sollen erleichtert und positiv unterstützt werden.
