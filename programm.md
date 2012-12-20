@@ -42,89 +42,89 @@ Die Bildungseinrichtungen sind für die dortigen Schüler und Studenten ein prä
 
 Der Landesverband Hessen der Piratenpartei Deutschland will Bildungseinrichtungen als demokratischen und öffentlichen Handlungsraum ihrer Teilnehmer gestalten und die Lernenden zu Hauptakteuren machen.
 
-# Menschenbild
-Gesellschaftliche Grundlage und Ziel pädagogischer Arbeit ist der mündige Bürger, der in der Lage ist sich seines eigenen Verstandes zu bedienen.
+# Der Zweck von Bildung
 
-# Zweck von Bildung
-Bildung dient - entsprechend den Ideen eines humanistischen Menschenbildes - der Entwicklung der Gesamtpersönlichkeit eines jeden Menschen. Wir gehen davon aus, dass alle Menschen von Natur aus nach Wissen und Erkenntnis streben. Folglich hat Bildung die Prozesse der Selbstbildung und Aufklärung voranzutreiben. Auf der Basis von Interesse und Neugier soll Bildung Reflexionsfähigkeit und eigenes Urteilsvermögen im Sinne der Mündigkeit und einer kritischen Abwägung von Einsichten, Argumenten, dem Überprüfen von Hypothesen und langfristigen Folgen dienen.
+Die gesellschaftliche Grundlage und das Ziel pädagogischer Arbeit muss der mündige Bürger sein, der in der Lage ist, sich seines eigenen Verstandes zu bedienen.
 
-Bildung mündet in bewusster und souveräner Handlungsfähigkeit.
+Bildung soll - entsprechend den Ideen eines humanistischen Menschenbildes - der Entwicklung der Gesamtpersönlichkeit eines jeden Menschen dienen. Wir gehen davon aus, dass alle Menschen von Natur aus nach Wissen und Erkenntnis streben. Folglich hat Bildung die Prozesse der Selbstbildung und Aufklärung zu unterstützen. Auf der Basis von Interesse und Neugier soll Bildung Reflexionsfähigkeit und eigenes Urteilsvermögen - im Sinne von Mündigkeit, kritischer Abwägung von Einsichten und Argumenten, sowie dem Überprüfen von Hypothesen und langfristiger Folgen - fördern.
 
-# Rolle des Staates
+Bildung, wie wir sie uns als Piraten vorstellen, mündet in bewusster und souveräner Handlungsfähigkeit.
+
+# Die Rolle des Staates
+
 Die ökonomisch motivierte Privatisierung staatlicher Bildungseinrichtungen verfehlt das Ziel gesellschaftlich wertvoller Bildung und wird von den Piraten Hessen abgelehnt. Gleichzeitig begrüßt die Piratenpartei aber die Ergänzung des öffentlichen Schulangebots durch alternative Schulen in nicht-staatlicher Trägerschaft und sieht diese als Bereicherung des Schulangebotes. Privaten Trägern, die bestimmten Kriterien entsprechen, steht eine öffentliche und in der Höhe gleiche Förderung wie staatlichen Schulen zu. Das bezieht sich auch auf Baumaßnahmen sowie die Instandhaltung der Infrastruktur.
 
 Eine unangemessene Beeinflussung durch Lobbyisten ist in Schulen jeder Trägerschaft auszuschließen.
 
-Jeder Mensch muss unabhängig von sozialer und kultureller Herkunft, finanzieller Lage und sonderpädagogischem Förderbedarf die von ihm bevorzugte Bildungsform frei wählen können. Pauschale Ausschlusskriterien sind grundsätzlich abzulehnen.
+Jeder Mensch muss unabhängig von sozialer und kultureller Herkunft, finanzieller Lage und sonderpädagogischem Förderbedarf die von ihm bevorzugte Bildungsform frei wählen können. Pauschale Ausschlusskriterien lehnen wir grundsätzlich ab.
 
-Bildung wird vom Staat bezahlt und ist nicht auf Drittmittel bzw. Finanzierung der Wirtschaft angewiesen. Alle Bildungseinrichtungen unterliegen staatlicher Kontrolle und sind allen Lernern kostenfrei zugängig.
+Bildung muss vom Staat bezahlt werden und darf nicht auf Drittmittel bzw. Finanzierung der Wirtschaft angewiesen sein. Alle Bildungseinrichtungen unter staatlicher Verantwortung müssen allen Lernenden kostenfrei zugängig sein.
 
 # Frühkindliche Sozialisation
-Kinder und Jugendliche erschließen sich die Welt durch Neugierde und benötigen dafür eine altersgerechte Beziehung in Betreuungs-, Erziehungs- und Bildungsverhältnissen. Sie werden dafür in einer geeigneten Umgebung gefördert.
 
-Besondere Bedeutung kommt im Entwicklungsprozess dem Spiel zu, da das Spiel Grundlage allen selbstmotivierten Lernens und eines gesunden Selbstwertgefühls ist.
+Kinder und Jugendliche erschließen sich die Welt durch Neugierde. Sie benötigen dafür eine altersgerechte Beziehung in Betreuungs-, Erziehungs- und Bildungsverhältnissen. Dafür müssen sie in einer geeigneten Umgebung gefördert werden.
 
-Kinder brauchen in dieser Zeit vor allem sinnliche Erfahrungs- und Bewegungswelten, Zeit für unmittelbare Erlebnisse, aufrichtige Zuwendung und ein Gefühl der Zugehörigkeit, um sich gesund entwickeln zu können.
+Besondere Bedeutung kommt im Entwicklungsprozess dem Spiel zu, da das Spiel Grundlage allen selbstmotivierten Lernens und eines gesunden Selbstwertgefühls ist. Kinder brauchen in dieser Zeit vor allem sinnliche Erfahrungs- und Bewegungswelten, Zeit für unmittelbare Erlebnisse, aufrichtige Zuwendung und ein Gefühl der Zugehörigkeit, um sich bestmöglich entwickeln zu können.
 
-Erziehungsmaßnahmen und –stile orientieren sich an den Bedürfnissen des Kindes und fördern das Kind im Sinne einer ganzheitlichen Entwicklung: Alle Entwicklungsbereiche (geistige, körperliche, emotional-sinnliche, ästhetisch-kulturelle etc.) werden gleichermaßen altersgerecht und situationsspezifisch gefördert. Dies schließt soziales Leben in Gruppen und die Integration von Kindern in besonderen Lebenslagen und aus verschiedenen Lebenswelten ausdrücklich mit ein.
+Erziehungsmaßnahmen und -stile müssen sich sich an den Bedürfnissen des Kindes orientieren und das Kind im Sinne einer ganzheitlichen Entwicklung fördern.
 
-Das pädagogische Personal ist Betreuer, Erzieher und Vorbild zugleich und wird für diese Aufgaben und Rollen qualitativ hochwertig ausgebildet. Die Piraten lehnen die geplante Verkürzung der Erzieher-Ausbildung ab. Pädagogisches Personal wird angemessen bezahlt und erhält Beratung und Supervision als Unterstützung ihrer Arbeit.
+Alle Entwicklungsbereiche (geistige, körperliche, emotional-sinnliche, ästhetisch-kulturelle etc.) müssen gleichermaßen altersgerecht und situationsspezifisch gefördert werden. Dies schließt soziales Leben in Gruppen und die Integration von Kindern in besonderen Lebenslagen und aus verschiedenen Lebenswelten ausdrücklich ein.
 
-Eine Vielfalt von Lebensstilen, Einrichtungsformen und pädagogischen Konzepten ist erwünscht, da sie zur Auseinandersetzung anregen und Kindern wie Eltern unterschiedliche Handlungsmöglichkeiten eröffnen. Um eine konstruktive Erziehungsunterstützung zu gewährleisten, arbeiten alle Beteiligten eng zusammen.
+Das pädagogische Personal ist Betreuer, Erzieher und Vorbild zugleich und muss für diese Aufgaben und Rollen qualitativ hochwertig ausgebildet werden.
 
-Hierfür schafft der Staat die entsprechenden Rahmenbedingungen und sorgt für kostenfreie Zugänge.
+Wir wünschen uns eine Vielfalt von Einrichtungsformen und pädagogischen Konzepten, da diese zur Auseinandersetzung anregen und Kindern wie Eltern unterschiedliche Handlungsmöglichkeiten eröffnen. Um eine konstruktive Erziehungsunterstützung zu gewährleisten, müssen alle Beteiligten eng zusammenarbeiten.
 
-Jedes Kind hat mit Abschluss des Mutterschutzes das Recht auf kostenlose qualifizierte frühkindliche Betreuung. Das Land ist verpflichtet, dafür zu sorgen, dass für jedes Kind einen Betreuungsplatz in direktem Wohnumfeld zur Verfügung steht.
+Hierfür hat der Staat die entsprechenden Rahmenbedingungen zu schaffen und für kostenfreie Zugänge zu sorgen.
 
-Ab dem dritten Lebensjahr des Kindes ist den Eltern ein Kindergartenplatz aktiv anzubieten. Darüber hinaus schafft das Land Anreize, die den Kindergartenbesuch für Eltern und Kinder attraktiv machen und wirbt für seine Vorteile. Negative Anreize wie ein Erziehungsgeld werden abgelehnt.
+Jedes Kind soll mit Abschluss des Mutterschutzes das Recht auf kostenlose qualifizierte frühkindliche Betreuung haben. Das Land muss verpflichtet werden, dafür zu sorgen, dass für jedes Kind ein Betreuungsplatz in direktem Wohnumfeld zur Verfügung steht.
+
+Ab dem dritten Lebensjahr des Kindes soll den Eltern ein Kindergartenplatz aktiv angeboten werden. Darüber hinaus setzen wir uns dafür ein, dass das Land Anreize schafft, die den Kindergartenbesuch für Eltern und Kinder attraktiv machen und für seine Vorteile wirbt. Negative Anreize wie ein Erziehungsgeld lehnt die Piratenpartei Hessen ab.
 
 # Schulbildung
-Jedwedes Bildungsangebot – von Krippen bis Schule ist gebührenfrei. Es gibt keine versteckten Kosten für Lernmittel, Bücher, Computer, Kopierkosten, Klassenfahrten, Mittagessen, Förderung u.Ä..
 
-Bildung geht vor Copyright bzw. Urheberrecht. Im Rahmen des Unterrichts ist die Kopierbarkeit und der Einsatz jedweden Materials prinzipiell kostenfrei und rechtlich zu gewährleisten.
+Wir als Piratenpartei Hessen stehen für ein gebührenfreies Schulangebot. Das bedeutet für uns auch, dass es keine versteckten Kosten für Lernmittel, Bücher, Computer, Kopierkosten, Klassenfahrten, Mittagessen, Förderung u.Ä. geben darf.
 
-Niemand darf aufgrund von Herkunft, Geschlecht, Wohnort, Einkommen, Alter, Aussehen, Behinderung oder vorhandenen Budgets von einer Schule ausgeschlossen werden. Übersteigt die Nachfrage nach einer bestimmten Schule das Angebot an Plätzen, legt das Schulamt ein Auswahlverfahren fest, das sicherstellt, dass die Vergabe nach objektiven und pädagogischen Kriterien und ohne Berücksichtigung der Person erfolgt.
+Bildung steht über Copyright und Urheberrecht. Im Rahmen des Unterrichts sollen Kopierbarkeit und Einsatz jedweden Materials prinzipiell kostenfrei und rechtlich sicher gewährleistet sein.
 
-Werden Bildungseinrichtung in freier Trägerschaft, analog den öffentlichen Schulen, durch das Land Hessen gefördert, so dürfen sie über diese Förderung hinaus keine Gebühren oder Schulgeld verlangen.
+Niemand darf aufgrund von Herkunft, Geschlecht, Wohnort, Einkommen, Alter, Aussehen, Behinderung oder vorhandenen Budgets von einer Schule ausgeschlossen werden. Übersteigt die Nachfrage nach einer bestimmten Schule das Angebot an Plätzen, soll das Schulamt ein Auswahlverfahren festlegen, das sicherstellt, dass die Vergabe nach objektiven und pädagogischen Kriterien und ohne Berücksichtigung der Person erfolgt.
 
-Die Schulen, staatliche wie solche in freier Trägerschaft, erhalten die staatliche Zuweisungen an Lehrerstellen bzw. Finanzmitteln auf der Basis einer Lerngruppenstärke von 20 Schülern.
+Werden Bildungseinrichtung in freier Trägerschaft, analog den öffentlichen Schulen, durch das Land Hessen gefördert, so sollen sie über diese Förderung hinaus keine Gebühren oder Schulgeld verlangen dürfen.
 
-Die Regelgrundschulzeit beträgt 6 Jahre.
+Die Schulen, staatliche wie solche in freier Trägerschaft, sollen die staatliche Zuweisungen an Lehrerstellen bzw. Finanzmitteln auf der Basis einer Lerngruppenstärke von 20 Schülern erhalten.
 
-Schulen sind als angebotsorientierte Ganztagsschulen von 07:00 bis 17:00 Uhr zu organisieren (ausgenommen berufliche Schulen). Kernarbeits- und Unterrichtszeit ist von 09:00 bis 15:00 Uhr. Davor und danach sind geeignete Förder- und Forderangebote (Talentförderung, AG's, usw.) anzubieten.
+Die Piratenpartei Hessen setzt sich für eine Regelgrundschulzeit von 6 Jahren ein.
 
-Die Piraten fordern die sofortige Umsetzung der in der Behindertenrechtskonvention (BRK), die seit dem 26. März 2009 in Kraft gesetzt wurde. Alle beeinträchtigten Schüler und Schüler mit Behinderung haben das Recht auf den Besuch einer Regelschule (Inklusion). Alle Regelschulen sind somit Inklusionsschulen. Jede Klasse muss bis zu 3 beeinträchtigte Schüler aufnehmen. Jede Inklusionsklasse wird durch einen Förderlehrer unterstützt (durchgängig).
+Schulen sollen ein ganztägig geöffnet sein (ausgenommen berufliche Schulen). Die Schulen sollen die erweiterten Öffnungszeiten für geeignete Förder- und Forderangebote (Talentförderung, AG's, usw.) oder der Einrichtung von Spätmorgen-Schulklassen nutzen. Dieser Ausbau des Schulangebots muss mit ausreichend Personal unterstützt werden, wofür auch entsprechende Stellen geschaffen werden müssen.
 
-An jeder Schule sind pro 100 Schüler
+Die Piraten machen sich für die sofortige Umsetzung der in der Behindertenrechtskonvention (BRK) stark, die seit dem 26. März 2009 in Kraft gesetzt wurde. Alle beeinträchtigten Schüler und Schüler mit Behinderung müssen das Recht auf den Besuch einer Regelschule haben (Inklusion). Alle Regelschulen müssen Inklusionsklassen anbieten können. Jede Klasse soll hierbei bis zu drei beeinträchtigte Schüler aufnehmen. Jede Inklusionsklasse muss durchgängig durch einen Förderlehrer unterstützt werden.
 
-* Schul-Sozialpädagogen
-* Schul-Psychologen,
-* Speziallehrkräfte, die nach normaler Ausbildung und längerer Schulpraxis eine intensive Ausbildung zu psychologischen Grundlagen, diagnostischer Kompetenz und einer differenzierten Methodenpalette des Förderns absolviert haben
-* sowie Fachkräfte mit einer Grundausbildung als Krankenpfleger / Krankenschwester mit Zusatzausbildung für vorbeugende Gesundheitsarbeit
+Wir wollen, dass an jeder Schule pro 100 Schüler
 
-mit mindestens je einem Tag pro Woche einzusetzen.
+Schul-Sozialpädagogen
+Schul-Psychologen,
+Speziallehrkräfte, die nach normaler Ausbildung und längerer Schulpraxis eine intensive Ausbildung zu psychologischen Grundlagen, diagnostischer Kompetenz und einer differenzierten Methodenpalette des Förderns absolviert haben
+sowie Fachkräfte mit einer Grundausbildung als Krankenpfleger / Krankenschwester mit Zusatzausbildung für vorbeugende Gesundheitsarbeit
+mit mindestens je einem Tag pro Woche eingesetzt werden.
 
-Lernende mit Lernproblemen haben Anspruch auf umfangreiche Förderung durch Speziallehrkräfte.
+Lernende mit Lernproblemen sollen Anspruch auf umfangreiche Förderung durch Speziallehrkräfte bekommen.
 
-Der Wechsel zwischen verschiedenen Schulen - auch aus anderen (Bundes-)Ländern - ist durch individuelle Förderung zu unterstützen.
+Die Piratenpartei Hessen strebt die Überwindung des veralteten mehrgliedrigen Schulsystems an. Im Sinne eines gemeinsamen, sozialen Lernens soll sich der sechsjährigen Grundschule eine vierjährige Gemeinschaftsschule anschließen. Hier soll zunächst im gemischten Klassenverband, mit fortschreitendem Alter zunehmend in Interessens-spezifischen sowie Förderungs-orientierten Kursen gelernt werden. Das schließt für uns die Anwendung unterschiedlicher pädagogischer Konzepte innerhalb einer Schule ein.
 
-Die Piraten streben die Überwindung des veralteten mehr-gliedrigen Schulsystems an. Im Sinne eines gemeinsamen, sozialen Lernens schließt sich der 6-jährigen Grundschule eine 4-jährige Gemeinschaftsschule an. Hier wird zunächst im gemischten Klassenverband, mit fortschreitendem Alter zunehmend in Interessens-spezifischen sowie Förderungs-orientierten Kursen.
-
-Das schließt die Anwendung unterschiedlicher pädagogischer Konzepte innerhalb einer Schule ein.
-
-Schule ist überwachungsfreier Raum. Die Piraten lehnen jede Form von Überwachung von Schülern, egal ob durch Schultrojaner, überwachte Internet-Anbindungen oder in audio-visueller Form ab.
+Schule hat überwachungsfreier Raum zu sein. Die Piraten lehnen jede Form von Überwachung von Schülern, egal ob durch Schultrojaner, überwachte Internet-Anbindungen oder in audio-visueller Form, ab.
 
 # Beschäftigungsverhältnisse
-Die Ausbildung von Lehrkräften und Erzieherinnen/Erziehern ist qualitativ hochwertig und die Arbeit wird entsprechend dotiert.
 
-Die dreijährige Fachschulausbildung für Erzieherinnen/Erzieher wird beibehalten.
+Die Ausbildung von Lehrkräften und Erzieherinnen/Erziehern muss qualitativ hochwertig bleiben und ihre Arbeit entsprechend dotiert werden. Pädagogisches Personal muss Beratung und Supervision als Unterstützung seiner Arbeit erhalten.
 
 # Aus- und Weiterbildung der Lehrkräfte
-Die Ausbildung der Lehrkräfte in Hessen bedarf dringend einer Veränderung. Ziele der Piraten sind hier:
 
-* Potentielle Lehrkräfte sollen viel früher feststellen können, ob sie persönlich für den Unterricht von Kindern und Jugendlichen geeignet sind
-* Angehende Lehrkräfte sollen noch besser pädagogisch und didaktisch auf den Unterricht vorbereitet werden
-* In der Praxis stehende Lehrkräfte sollen mit geeigneten Anreizen zur regelmäßigen Weiterbildung und Tätigkeit an verschiedenen Schulen motiviert werden
-* Allen Lehrkräften sollen ihre Stärken und Schwächen aufgezeigt sowie Weiterbildungs-und Entwicklungspotentiale erschlossen werden
-* Das Verfallen in unreflektierte Verhaltens- und Reaktionsmuster sowie das Entstehen von Stress-Krankheiten und Burn Out soll vermieden werden
-* Weiterbildungen, Schul- und Fachwechsel und Auszeiten sollen erleichtert und positiv unterstützt werden.
+Die Ausbildung der Lehrkräfte in Hessen bedarf in unseren Augen dringend einer Veränderung.
+
+Ziele der Piratenpartei Hessen sind hier:
+
+Potentielle Lehrkräfte sollen viel früher feststellen können, ob sie persönlich für den Unterricht von Kindern und Jugendlichen geeignet sind.
+Angehende Lehrkräfte sollen noch besser pädagogisch und didaktisch auf den Unterricht vorbereitet werden
+In der Praxis stehende Lehrkräfte sollen mit geeigneten Anreizen zur regelmäßigen Weiterbildung und Tätigkeit an verschiedenen Schulen motiviert werden
+Allen Lehrkräften sollen ihre Stärken und Schwächen aufgezeigt sowie Weiterbildungs-und Entwicklungspotentiale erschlossen werden.
+Das Verfallen in unreflektierte Verhaltens- und Reaktionsmuster sowie das Entstehen von Stress-Krankheiten und Burn Out soll vermieden werden.
+Weiterbildungen, Schul- und Fachwechsel und Auszeiten sollen erleichtert und positiv unterstützt werden.
