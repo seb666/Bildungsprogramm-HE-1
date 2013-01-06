@@ -31,12 +31,12 @@ Jeder Mensch ist ein Individuum mit persönlichen Neigungen, Stärken und Schwä
 
 Die Bildungsinhalte haben auf fundierten und belegbaren Erkenntnissen zu basieren und müssen von einem möglichst neutralen Standpunkt aus vermittelt werden. Dies beinhaltet vor allem eine sachliche Darstellung, die Ausgewogenheit der Standpunkte und eine kritische Quellenbewertung.
 
-Der Landesverband Hessen der Piratenpartei Deutschland will Rahmenbedingungen einführen, die das immerwährende Lernen in allen Lebensbereichen ermöglichen.
+Der Landesverband Hessen der Piratenpartei Deutschland will Rahmenbedingungen einführen, die das immerwährende Lernen in allen Lebensbereichen ermöglichen.
 
 # Demokratisierung der Bildungseinrichtungen
 Die Bildungseinrichtungen sind für die dortigen Schüler und Studenten ein prägender und umfassender Bestandteil ihres Lebens. Sie sind deswegen als Lebensraum der Lernenden zu begreifen, dessen Gestaltung und Nutzung ihnen stets offen stehen muss. Eine demokratische Organisation der Bildungseinrichtungen soll den Lernenden, genau wie den anderen Interessengruppen der Bildungseinrichtungen, eine angemessene Einflussnahme ermöglichen. Auf diese Weise werden demokratische Werte vermittelt und vorgelebt, die Akzeptanz der Entscheidungen erhöht, sowie das Gemeinschaftsgefühl innerhalb der Bildungseinrichtungen gestärkt.
 
-Der Landesverband Hessen der Piratenpartei Deutschland will Bildungseinrichtungen als demokratischen und öffentlichen Handlungsraum ihrer Teilnehmer gestalten und die Lernenden zu Hauptakteuren machen.
+Der Landesverband Hessen der Piratenpartei Deutschland will Bildungseinrichtungen als demokratischen und öffentlichen Handlungsraum ihrer Teilnehmer gestalten und die Lernenden zu Hauptakteuren machen.
 
 # Der Zweck von Bildung
 
@@ -90,9 +90,9 @@ Die Schulen, staatliche wie solche in freier Trägerschaft, sollen die staatlich
 
 Die Piratenpartei Hessen setzt sich für eine Regelgrundschulzeit von 6 Jahren ein.
 
-Schulen sollen ein ganztägig geöffnet sein (ausgenommen berufliche Schulen). Die Schulen sollen die erweiterten Öffnungszeiten für geeignete Förder- und Forderangebote (Talentförderung, AG's, usw.) oder der Einrichtung von Spätmorgen-Schulklassen nutzen. Dieser Ausbau des Schulangebots muss mit ausreichend Personal unterstützt werden, wofür auch entsprechende Stellen geschaffen werden müssen.
+Schulen sollen ganztägig geöffnet sein (ausgenommen berufliche Schulen). Die Schulen sollen die erweiterten Öffnungszeiten für geeignete Förder- und Forderangebote (Talentförderung, AG's, usw.) oder der Einrichtung von Spätmorgen-Schulklassen nutzen. Dieser Ausbau des Schulangebots muss mit ausreichend Personal unterstützt werden, wofür auch entsprechende Stellen geschaffen werden müssen.
 
-Die Piraten machen sich für die sofortige Umsetzung der in der Behindertenrechtskonvention (BRK) stark, die seit dem 26. März 2009 in Kraft gesetzt wurde. Alle beeinträchtigten Schüler und Schüler mit Behinderung müssen das Recht auf den Besuch einer Regelschule haben (Inklusion). Alle Regelschulen müssen Inklusionsklassen anbieten können. Jede Klasse soll hierbei bis zu drei beeinträchtigte Schüler aufnehmen. Jede Inklusionsklasse muss durchgängig durch einen Förderlehrer unterstützt werden.
+Die Piraten machen sich für die sofortige Umsetzung der UN-Behindertenrechtskonvention (BRK) stark, die seit dem 26. März 2009 in Kraft gesetzt wurde. Alle beeinträchtigten Schüler und Schüler mit Behinderung müssen das Recht auf den Besuch einer Regelschule haben (Inklusion). Alle Regelschulen müssen Inklusionsklassen anbieten können. Jede Klasse soll hierbei bis zu drei beeinträchtigte Schüler aufnehmen. Jede Inklusionsklasse muss durchgängig durch einen Förderlehrer unterstützt werden.
 
 Wir wollen, dass an jeder Schule pro 100 Schüler
 
