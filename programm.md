@@ -1,50 +1,24 @@
 # Bildung
-Es ist erforderlich, die in anderen Ländern erfolgreichen Maßnahmen zu erkennen und für Hessen zu adaptieren. Schulen müssen dazu beitragen, soziale Kluften zu überwinden, statt sie zu verstärken. Hierbei müssen Konzepte wie Ganztagsschule, Betreuung durch Pädagogen in freien Nachmittagszeiten aber auch gezielte Förderung leistungsschwacher Schüler diskutiert werden. Möglichkeiten des gemeinsamen Schulweges und die Bevorzugung öffentlicher Transportmittel einerseits im sozialen Kontext, anderseits aber auch im Sinne des Umweltschutzgedankens sind zu prüfen und umzusetzen.
 
-Neben einer ausreichenden Zahl von Lehrern ist die Fortbildung der schon vorhandenen Lehrer zu fördern. Gerade Lehrer brauchen Kompetenz im Umgang mit neuen Medien. Es kann nicht sein, dass Kinder, Schüler und Auszubildende diese Aufgabe indirekt wahrnehmen, wie es heute an vielen Bildungseinrichtungen der Fall ist. Hierzu zählt auch die Forderung nach Benutzung von offenen, nach DIN oder ISO zertifizierten Standards zum Datenaustausch sowohl im Unterricht als auch in der Verwaltung.
+# Der Zweck von Bildung
 
-Unterrichtsgarantie Plus darf kein Modell für Unterricht durch unqualifiziertes Lehrpersonal und verschwendete Schulzeit bleiben. Der Festanstellung von Lehrern zur Pufferung krankheits- und fortbildungsbedingter Unterrichtsausfälle ist der Vorzug zu geben. Unterrichtsmaterialien müssen wieder kostenfrei zu Verfügung gestellt werden. Für Ganztagsschulen oder bei Nachmittagsunterricht ist es erforderlich, eine kostenlose Verpflegung mit vollwertigen Mahlzeiten anzubieten. Dass diese auch eher ökologischen Maßstäben entsprechen und nicht von minderwertiger Kantinenqualität sein sollte, ist selbstverständlich. Die Umsetzbarkeit dieser Forderungen zeigen zahlreiche Modelle.
+Wir gehen davon aus, dass alle Menschen von Natur aus nach Wissen und Erkenntnis streben. Folglich hat Bildung die Prozesse der Selbstbildung und Aufklärung zu unterstützen. Auf der Basis von Interesse und Neugier soll Bildung Reflexionsfähigkeit und eigenes Urteilsvermögen - im Sinne von Mündigkeit, kritischer Abwägung von Einsichten und Argumenten, sowie dem Überprüfen von Hypothesen und langfristiger Folgen - fördern.
 
-Die Einführung der Studiengebühren zur Erhöhung der Effizienz in Hochschulen und Universitäten verfehlte klar ihr Ziel, Mit ihrer Rücknahme ist ein erster Schritt getan. Jetzt sind Finanzierungsmodelle umzusetzen, die eine Benachteiligung sozial und finanziell schwächer gestellter Studenten ausschließen. Als Finanzierungsmodelle für Hochschulen sind neben der öffentlichen Hand auch private und gewerbliche Stiftungen anzustreben. Die freie und uneingeschränkte Zugänglichkeit zu Wissen und Werken, die in Hochschulen erarbeitet wurden, muss für alle öffentlichen Einrichtungen gewährleistet sein. Wirtschaftlich verwertbare Forschungsergebnisse und daraus erzielte Erlöse sollen in den Ausbau von Bildungseinrichtungen fließen.
+Bildung, wie wir sie uns als Piraten vorstellen, mündet in bewusster und souveräner Handlungsfähigkeit.
 
-# Neue Bildungskonzepte
-Die deutsche Bildungspolitik ist in Lagern gefangen, die sich kaum bewegen können. Die hessischen Piraten sehen Bildung als lebenslangen Prozess, der nicht nur auf junge Menschen beschränkt werden sollte. Wir wollen deshalb Rahmenbedingungen einführen, die das immerwährende Lernen in allen Lebensbereichen ermöglichen.
-
-Zudem soll endlich wieder der Lernende im Mittelpunkt stehen und zum Hauptakteuer des eigenen Bildungsprozesses werden. Durch mehr Mitbestimmung und Transparenz in den Lehrplänen und Angeboten wollen wir Bildungseinrichtungen als demokratischen und öffentlichen Handlungsraum der Teilnehmer gestalten.
-
-# Bildung in einer freiheitlich-demokratischen Gesellschaft
 Jeder Mensch hat das Recht auf freien Zugang zu Information und Bildung. Dies ist in einer freiheitlich-demokratischen Gesellschaft essentiell, um jedem Menschen, unabhängig von seiner sozialen Herkunft, ein größtmögliches Maß an gesellschaftlicher Teilhabe zu ermöglichen. Mit diesem Ziel ist das Hauptanliegen institutioneller Bildung die Unterstützung bei der Entwicklung zur mündigen, kritischen und sozialen Person.
 
 Der freie Zugang zu Information und Bildung ist jedoch nicht nur im Hinblick auf die gesellschaftliche Entwicklung notwendig, sondern auch im Hinblick auf die wirtschaftliche Entwicklung unserer Gesellschaft. Bildung ist eine der wichtigsten Ressourcen der deutschen Volkswirtschaft, da nur durch den Erhalt, die Weitergabe und die Vermehrung von Wissen Fortschritt und gesellschaftlicher Wohlstand auf Dauer gesichert werden können.
 
 Investitionen in Bildung sind Investitionen in die Zukunft.
 
-# Die öffentliche Bildungsinfrastruktur
-Der freie Zugang zu Bildungseinrichtungen ist im Interesse aller. Deshalb ist es Aufgabe der gesamten Gesellschaft, in Form des Staates, eine leistungsfähige und ihrem Zwecke angemessene Bildungsinfrastruktur zu finanzieren und frei zur Verfügung zu stellen. Private Finanzierung öffentlicher Bildungseinrichtungen ist grundsätzlich zu begrüßen, solange sie keinen Einfluss auf die bestehenden Lehrinhalte hat.
-
-Bildungsgebühren jeglicher Art schränken den Zugang zu Bildung ein und sind deshalb kategorisch abzulehnen. Aus diesem Grund ist auch die Lehrmittelfreiheit zu befürworten. Diese ist am besten dadurch herzustellen, dass die Verwendung und das Schaffen von freien Werken zur Vermittlung von Wissen unterstützt und ausgebaut wird. Diese freien Werke sind nicht nur kostenfrei im Unterricht einsetzbar, sondern ermöglichen dazu dem Lehrenden ohne rechtliche Hürden die Lernmittel auf seinen Unterricht anzupassen.
-
-Trotz des staatlichen Bildungsauftrages soll die Erziehung in Bildungseinrichtungen die Erziehung durch die Eltern nicht ersetzen. Zur umfassenden Bildung gehört, dass sich beide Formen der Erziehung gegenseitig ergänzen und fördern.
-
 # Bildung als individueller Prozess
+
 Jeder Mensch ist ein Individuum mit persönlichen Neigungen, Stärken und Schwächen. Institutionelle Bildung soll daher den Einzelnen unterstützen seine Begabungen zu entfalten, Schwächen abzubauen und neue Interessen und Fähigkeiten zu entdecken. Neben starren Lehr- und Stundenplänen, werden vor allem einige Formen der Leistungsbewertung diesen Forderungen nicht gerecht. Insbesondere die Bewertung von Verhalten nach einem vorgegebenen Normenraster z.B. bei den sogenannten Kopfnoten lehnen wir ab.
 
 Die Bildungsinhalte haben auf fundierten und belegbaren Erkenntnissen zu basieren und müssen von einem möglichst neutralen Standpunkt aus vermittelt werden. Dies beinhaltet vor allem eine sachliche Darstellung, die Ausgewogenheit der Standpunkte und eine kritische Quellenbewertung.
 
 Der Landesverband Hessen der Piratenpartei Deutschland will Rahmenbedingungen einführen, die das immerwährende Lernen in allen Lebensbereichen ermöglichen.
-
-# Demokratisierung der Bildungseinrichtungen
-Die Bildungseinrichtungen sind für die dortigen Schüler und Studenten ein prägender und umfassender Bestandteil ihres Lebens. Sie sind deswegen als Lebensraum der Lernenden zu begreifen, dessen Gestaltung und Nutzung ihnen stets offen stehen muss. Eine demokratische Organisation der Bildungseinrichtungen soll den Lernenden, genau wie den anderen Interessengruppen der Bildungseinrichtungen, eine angemessene Einflussnahme ermöglichen. Auf diese Weise werden demokratische Werte vermittelt und vorgelebt, die Akzeptanz der Entscheidungen erhöht, sowie das Gemeinschaftsgefühl innerhalb der Bildungseinrichtungen gestärkt.
-
-Der Landesverband Hessen der Piratenpartei Deutschland will Bildungseinrichtungen als demokratischen und öffentlichen Handlungsraum ihrer Teilnehmer gestalten und die Lernenden zu Hauptakteuren machen.
-
-# Der Zweck von Bildung
-
-Die gesellschaftliche Grundlage und das Ziel pädagogischer Arbeit muss der mündige Bürger sein, der in der Lage ist, sich seines eigenen Verstandes zu bedienen.
-
-Bildung soll - entsprechend den Ideen eines humanistischen Menschenbildes - der Entwicklung der Gesamtpersönlichkeit eines jeden Menschen dienen. Wir gehen davon aus, dass alle Menschen von Natur aus nach Wissen und Erkenntnis streben. Folglich hat Bildung die Prozesse der Selbstbildung und Aufklärung zu unterstützen. Auf der Basis von Interesse und Neugier soll Bildung Reflexionsfähigkeit und eigenes Urteilsvermögen - im Sinne von Mündigkeit, kritischer Abwägung von Einsichten und Argumenten, sowie dem Überprüfen von Hypothesen und langfristiger Folgen - fördern.
-
-Bildung, wie wir sie uns als Piraten vorstellen, mündet in bewusster und souveräner Handlungsfähigkeit.
 
 # Die Rolle des Staates
 
@@ -55,6 +29,8 @@ Eine unangemessene Beeinflussung durch Lobbyisten ist in Schulen jeder Trägersc
 Jeder Mensch muss unabhängig von sozialer und kultureller Herkunft, finanzieller Lage und sonderpädagogischem Förderbedarf die von ihm bevorzugte Bildungsform frei wählen können. Pauschale Ausschlusskriterien lehnen wir grundsätzlich ab.
 
 Bildung muss vom Staat bezahlt werden und darf nicht auf Drittmittel bzw. Finanzierung der Wirtschaft angewiesen sein. Alle Bildungseinrichtungen unter staatlicher Verantwortung müssen allen Lernenden kostenfrei zugängig sein.
+
+Trotz des staatlichen Bildungsauftrages soll die Erziehung in Bildungseinrichtungen die Erziehung durch die Eltern nicht ersetzen. Zur umfassenden Bildung gehört, dass sich beide Formen der Erziehung gegenseitig ergänzen und fördern.
 
 # Frühkindliche Sozialisation
 
@@ -92,6 +68,8 @@ Die Piratenpartei Hessen setzt sich für eine Regelgrundschulzeit von 6 Jahren e
 
 Schulen sollen ganztägig geöffnet sein (ausgenommen berufliche Schulen). Die Schulen sollen die erweiterten Öffnungszeiten für geeignete Förder- und Forderangebote (Talentförderung, AG's, usw.) oder der Einrichtung von Spätmorgen-Schulklassen nutzen. Dieser Ausbau des Schulangebots muss mit ausreichend Personal unterstützt werden, wofür auch entsprechende Stellen geschaffen werden müssen.
 
+Für Ganztagsschulen oder bei Nachmittagsunterricht ist es erforderlich, eine kostenlose Verpflegung mit vollwertigen Mahlzeiten anzubieten. Dass diese auch eher ökologischen Maßstäben entsprechen und nicht von minderwertiger Kantinenqualität sein sollte, ist selbstverständlich. Die Umsetzbarkeit dieser Forderungen zeigen zahlreiche Modelle.
+
 Die Piraten machen sich für die sofortige Umsetzung der UN-Behindertenrechtskonvention (BRK) stark, die seit dem 26. März 2009 in Kraft gesetzt wurde. Alle beeinträchtigten Schüler und Schüler mit Behinderung müssen das Recht auf den Besuch einer Regelschule haben (Inklusion). Alle Regelschulen müssen Inklusionsklassen anbieten können. Jede Klasse soll hierbei bis zu drei beeinträchtigte Schüler aufnehmen. Jede Inklusionsklasse muss durchgängig durch einen Förderlehrer unterstützt werden.
 
 Wir wollen, dass an jeder Schule pro 100 Schüler
@@ -109,9 +87,21 @@ Die Piratenpartei Hessen strebt die Überwindung des veralteten mehrgliedrigen S
 
 Schule hat überwachungsfreier Raum zu sein. Die Piraten lehnen jede Form von Überwachung von Schülern, egal ob durch Schultrojaner, überwachte Internet-Anbindungen oder in audio-visueller Form, ab.
 
+# Hochschule
+
+Die Einführung der Studiengebühren zur Erhöhung der Effizienz in Hochschulen und Universitäten verfehlte klar ihr Ziel, Mit ihrer Rücknahme ist ein erster Schritt getan. Jetzt sind Finanzierungsmodelle umzusetzen, die eine Benachteiligung sozial und finanziell schwächer gestellter Studenten ausschließen. Als Finanzierungsmodelle für Hochschulen sind neben der öffentlichen Hand auch private und gewerbliche Stiftungen anzustreben. Die freie und uneingeschränkte Zugänglichkeit zu Wissen und Werken, die in Hochschulen erarbeitet wurden, muss für alle öffentlichen Einrichtungen gewährleistet sein. Wirtschaftlich verwertbare Forschungsergebnisse und daraus erzielte Erlöse sollen in den Ausbau von Bildungseinrichtungen fließen.
+
+# Demokratisierung der Bildungseinrichtungen
+
+Die Bildungseinrichtungen sind für die dortigen Schüler und Studenten ein prägender und umfassender Bestandteil ihres Lebens. Sie sind deswegen als Lebensraum der Lernenden zu begreifen, dessen Gestaltung und Nutzung ihnen stets offen stehen muss. Eine demokratische Organisation der Bildungseinrichtungen soll den Lernenden, genau wie den anderen Interessengruppen der Bildungseinrichtungen, eine angemessene Einflussnahme ermöglichen. Auf diese Weise werden demokratische Werte vermittelt und vorgelebt, die Akzeptanz der Entscheidungen erhöht, sowie das Gemeinschaftsgefühl innerhalb der Bildungseinrichtungen gestärkt.
+
+Zudem soll endlich wieder der Lernende im Mittelpunkt stehen und zum Hauptakteuer des eigenen Bildungsprozesses werden. Durch mehr Mitbestimmung und Transparenz in den Lehrplänen und Angeboten wollen wir Bildungseinrichtungen als demokratischen und öffentlichen Handlungsraum der Teilnehmer gestalten.
+
 # Beschäftigungsverhältnisse
 
 Die Ausbildung von Lehrkräften und Erzieherinnen/Erziehern muss qualitativ hochwertig bleiben und ihre Arbeit entsprechend dotiert werden. Pädagogisches Personal muss Beratung und Supervision als Unterstützung seiner Arbeit erhalten.
+
+Unterrichtsgarantie Plus darf kein Modell für Unterricht durch unqualifiziertes Lehrpersonal und verschwendete Schulzeit bleiben. Der Festanstellung von Lehrern zur Pufferung krankheits- und fortbildungsbedingter Unterrichtsausfälle ist der Vorzug zu geben.
 
 # Aus- und Weiterbildung der Lehrkräfte
 
