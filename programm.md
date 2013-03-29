@@ -83,7 +83,13 @@ mit mindestens je einem Tag pro Woche eingesetzt werden.
 
 Lernende mit Lernproblemen sollen Anspruch auf umfangreiche Förderung durch Speziallehrkräfte bekommen.
 
-Die Piratenpartei Hessen strebt die Überwindung des veralteten mehrgliedrigen Schulsystems an. Im Sinne eines gemeinsamen, sozialen Lernens soll sich der sechsjährigen Grundschule eine vierjährige Gemeinschaftsschule anschließen. Hier soll zunächst im gemischten Klassenverband, mit fortschreitendem Alter zunehmend in Interessens-spezifischen sowie Förderungs-orientierten Kursen gelernt werden. Das schließt für uns die Anwendung unterschiedlicher pädagogischer Konzepte innerhalb einer Schule ein.
+Die Piratenpartei Hessen strebt die Überwindung des veralteten mehrgliedrigen Schulsystems an. Im Sinne eines gemeinsamen, sozialen Lernens soll sich der sechsjährigen Grundschule eine vierjährige Gemeinschaftsschule anschließen. 
+
+In jeder öffentlichen Schule sollen die Lernenden ihre Laufbahn flexibel und individuell planen und absolvieren können. Durch individuell unterstützende Strukturen und Angebote sollen Schulen den unterschiedlichen Interessen und Lerngeschwindigkeiten Rechnung tragen. Ein vorgeschrieben einheitliches Lerntempo lehnen wir ab, da es den individuellen Bedürfnissen der Lernenden nicht gerecht wird. Durch individuelles Lernen verbunden mit intensiver bedarfsorientierter Unterstützung der Lernenden sollen Schulen gerechter werden. Die soziale Herkunft darf nicht über den Bildungserfolg entscheiden.
+
+Im öffentlichen Schulwesen soll Raum sein für alternative Schulkonzepte wie zum Beispiel Demokratische Schulen, reformpädagogische Schulen, mehrsprachige und internationale Schulen.
+
+Schulen sollen den Lernenden zu Erfolgserlebnissen und nicht zur Erfahrung des Scheiterns verhelfen. Bewertungen von Lernenden müssen diese als Individuen würdigen und ihre Leistungen als Bestandteil und Ergebnis eines Entwicklungsprozesses unter verschiedenen Aspekten in den Blick nehmen. Sie sollen den Lernenden vorrangig als Rückmeldung über ihre Bildungsfortschritte dienen und nicht der interpersonellen Vergleichbarkeit.
 
 Schule hat überwachungsfreier Raum zu sein. Die Piraten lehnen jede Form von Überwachung von Schülern, egal ob durch Schultrojaner, überwachte Internet-Anbindungen oder in audio-visueller Form, ab.
 
